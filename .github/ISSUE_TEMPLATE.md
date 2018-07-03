@@ -37,7 +37,7 @@ Annual xxxxxx TWD or more
 
 ## Contact
 
-HR 劉小姐; Email: recruit@trendmicro.com; [104 Link](https://www.104.com.tw/job/?jobno=XXXX)
+HR 劉小姐; Email: recruit@trend.com.tw ; [104 Link](https://www.104.com.tw/job/?jobno=XXXX)
 
 ------
 ###### Make Yourself Shining --- 你有世界級的雄心，就該加入世界級資安英雄團隊！
